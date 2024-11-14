@@ -3,3 +3,6 @@
 
 
 > vsvslm - [Lasak Adarma](https://m.youtube.com/@lasakadarma3247) - 2024_08_08 - [MISTERI ISI KAMERA PENDAKI YANG TIDAK PERNAH KEMBALI](https://youtu.be/OC2VcoG44Y4) <img src="media/OC2VcoG44Y4/Screenshot_2024-11-14-19-59-20-70.png">
+
+
+> vsvsls - [Doczon](https://m.youtube.com/@Doczon) - 2024_10_21 - [Jepang: Fenomena Mengurung Diri yang Semakin Brutal ⎮ Hikikomori dan Problem 8050](https://youtu.be/lTOuSdPsVaA) <img src="media/lTOuSdPsVaA/Screenshot_2024-11-14-20-27-30-94.png">
