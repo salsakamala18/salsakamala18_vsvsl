@@ -12,3 +12,6 @@
 
 
 > vsvslr - [Kendati Demikian](https://m.youtube.com/@KendatiDemikianStudio) - 2024_10_24 - [Jouhatsu: Fenomena Menghilangnya Puluhan Ribu Orang Jepang Setiap Tahun](https://youtu.be/duwvjO4fw1I) <img src="media/duwvjO4fw1I/Screenshot_2024-11-14-20-52-09-67.png">
+
+
+> vsvsle - [NICEON](https://m.youtube.com/@niceonofficial) - 2024_10_19 - [Rekaman Asli dari Venus! Misi Venera Soviet Ungkap Permukaan Planet yang Misterius](https://youtu.be/-Eib1WAU568) <img src="media/-Eib1WAU568/Screenshot_2024-11-14-21-55-56-97.png">
