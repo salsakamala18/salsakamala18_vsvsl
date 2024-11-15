@@ -15,3 +15,6 @@
 
 
 > vsvsle - [NICEON](https://m.youtube.com/@niceonofficial) - 2024_10_19 - [Rekaman Asli dari Venus! Misi Venera Soviet Ungkap Permukaan Planet yang Misterius](https://youtu.be/-Eib1WAU568) <img src="media/-Eib1WAU568/Screenshot_2024-11-14-21-55-56-97.png">
+
+
+> vsvslf - [TASMAN CHANNEL](https://m.youtube.com/@tasmanchannel77) - 2024_11_03 - [KEJADIAN KONYOL BIKIN NGAKAK | Hiburan Warga 62 Bikin ngakak Paling Baru](https://youtu.be/M8RPy6hpTGI) <img src="media/M8RPy6hpTGI/Screenshot_2024-11-15-14-48-03-56.png">
